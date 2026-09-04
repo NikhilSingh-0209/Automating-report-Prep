@@ -1,2 +1,3 @@
 # Automating-report-Prep
 STEP 1 + STEP 2 — GOOGLE → MEMORY → FORMATTER
+STEP 3 — WHATSAPP DELIVERY
